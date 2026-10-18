@@ -1,0 +1,2 @@
+# premium-valley-thatch-001-valley-and-dormer-window-thatc
+Tired of thatch lines that don't align at valley intersections or dormer windows? Stop guessing and start detailing with a repeatable system.  This planner transforms the tedious task of valley and dormer window thatch detailing into a structured workflow. It ensures consistent overlap measurements, material tracking, and visual references so you n
